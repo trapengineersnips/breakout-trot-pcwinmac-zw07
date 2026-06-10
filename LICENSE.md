@@ -1,4 +1,4 @@
-# 
+# Professionnel breakout trading bot préréglages pour Mac OS | Officiel breakout trading bot préréglages pour PC Windows. Avec génération de signaux et signature des transactions — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
